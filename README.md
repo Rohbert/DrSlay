@@ -43,8 +43,13 @@ Mesen will ask you to reset the game, select yes.
 
 You can now play Dr. Mario with enhanced graphics! You can always disable the new graphics by disabling the HD pack option
 
----Streamer Links---  GIVE THEM A FOLLOW PLEASE THANKS
+---Streamer Links---  
+GIVE THEM A FOLLOW PLEASE THANKS
+
 https://www.twitch.tv/evrytimeweslay
+
 https://www.twitch.tv/alicehk8
+
 https://www.twitch.tv/subtlewookie
+
 https://www.twitch.tv/rohbertgames
